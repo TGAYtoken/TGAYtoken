@@ -1,6 +1,6 @@
 # **$TGAY - Trump is Gay Coin**  
 **The Most Tremendous Meme Coin in History. Period.** 🦅🎩  
-
+COIN IS LIVE: https://pump.fun/coin/36AUuJ7YztMw4JHVuFUAd9B6PLERcgpS6UJmSpYRpump
 ---
 
 ## **What is $TGAY?**  
@@ -45,7 +45,7 @@ Will $TGAY go to the moon? The White House? (Because we’re the **45th Presiden
    Buy some $SOL to cover transaction fees (and maybe grab a Diet Coke while you’re at it).  
 
 3. **Swap for $TGAY**  
-   Visit [Pump.fun](https://pump.fun) to exchange $SOL for $TGAY.  
+   Visit [Pump.fun](https://pump.fun/coin/36AUuJ7YztMw4JHVuFUAd9B6PLERcgpS6UJmSpYRpump) to exchange $SOL for $TGAY.  
 
 4. **Join the Circus**  
    Congratulations! You now own the most entertaining coin on the blockchain.  
